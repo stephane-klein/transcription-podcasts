@@ -1,4 +1,6 @@
-Lien vers l'épisode sur YouTube: https://youtu.be/Ps9wpSDvunI?si=klOLRO4_LyCmSsyD
+# 2024-04-05 - Qu'est-ce que la vérité ? 
+
+Lien vers l'épisode sur YouTube : https://youtu.be/Ps9wpSDvunI?si=klOLRO4_LyCmSsyD
 
 Bonjour à tous,
 
