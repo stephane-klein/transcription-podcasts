@@ -1,3 +1,5 @@
+Lien vers l'épisode sur YouTube: https://youtu.be/Ps9wpSDvunI?si=klOLRO4_LyCmSsyD
+
 Bonjour à tous,
 
 Aujourd'hui, on va parler de la vérité. Depuis l'Antiquité, la vérité a toujours constitué l'objectif ultime des
